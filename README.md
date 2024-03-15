@@ -1,0 +1,1 @@
+https://samulinatri.com/blog/win32-drawing-pixels
